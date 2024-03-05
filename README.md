@@ -1,4 +1,4 @@
-👋 Hi, I’m @WendyEze
+👋 Hi, I’m Wendy.
   
 👀 I’m interested in design. It could be mobile, web, or game design. 
 
