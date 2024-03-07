@@ -1,4 +1,5 @@
 👋 Hi, I’m Wendy.
+
 👋 Portfolio: https://weneze.wixstudio.io/wendyeze 
   
 👀 I’m interested in design. It could be mobile, web, or game design. 
